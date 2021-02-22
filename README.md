@@ -1,1 +1,1 @@
-![Banner](https://github.com/EliXorZz/elixorzz/blob/master/Embed.jpg?raw=true)
+
